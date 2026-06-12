@@ -7,8 +7,6 @@
 
 First established in 2024 and has provided various services and services that can help with all kinds of digital needs.
 
-## Featured Repository and Project
-[(nothing, yet)]
 
 ## Check Our Other Social Media
 [🌐 Website](https://nijushidigital.biz.id)
